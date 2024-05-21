@@ -1,1 +1,1 @@
-"Game of Thrones" also won numerous other awards, including Golden Globe Awards, Screen Actors Guild Awards, and BAFTA Awards.
+The show is known for its morally ambiguous characters and willingness to subvert traditional fantasy tropes.

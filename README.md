@@ -1,1 +1,1 @@
-The show is known for its morally ambiguous characters and willingness to subvert traditional fantasy tropes.
+HBO has announced multiple spin-off projects set in the "Game of Thrones" universe, exploring different time periods and regions.

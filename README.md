@@ -1,1 +1,1 @@
-HBO has announced multiple spin-off projects set in the "Game of Thrones" universe, exploring different time periods and regions.
+The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.

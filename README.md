@@ -1,1 +1,1 @@
-Disney Animation Studios experienced a renaissance with hits like "Frozen" (2013), which became the highest-grossing animated film of all time upon its release.
+"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.

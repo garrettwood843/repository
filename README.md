@@ -1,1 +1,1 @@
-"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.
+"Interstellar" (2014), directed by Christopher Nolan, utilized practical effects and scientific accuracy to depict space travel, immersing audiences in its epic narrative.

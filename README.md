@@ -1,1 +1,1 @@
-"Interstellar" (2014), directed by Christopher Nolan, utilized practical effects and scientific accuracy to depict space travel, immersing audiences in its epic narrative.
+"Moonlight" (2016) made history as the first LGBTQ+ film and the first film with an all-black cast to win the Academy Award for Best Picture.

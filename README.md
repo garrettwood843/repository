@@ -1,1 +1,1 @@
-"Game of Thrones" has been referenced in numerous other media, including television shows, films, and even political discourse.
+The show's costume design, by Michele Clapton, garnered praise for its attention to detail and historical inspiration.

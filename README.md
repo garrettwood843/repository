@@ -1,1 +1,1 @@
-The show's costume design, by Michele Clapton, garnered praise for its attention to detail and historical inspiration.
+"Game of Thrones" is based on George R.R. Martin's book series "A Song of Ice and Fire."

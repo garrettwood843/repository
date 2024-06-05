@@ -1,1 +1,1 @@
-"Game of Thrones" is based on George R.R. Martin's book series "A Song of Ice and Fire."
+The success of Indian films like "Baahubali: The Beginning" (2015) and "Baahubali 2: The Conclusion" (2017) demonstrated the growing influence of Bollywood on the global stage.

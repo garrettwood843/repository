@@ -1,1 +1,1 @@
-Fans of "Game of Thrones" are known for their passionate dedication, creating fan art, cosplay, and online forums to discuss theories and analysis.
+Pixar continued to deliver emotional storytelling with films like "Inside Out" (2015), exploring the complexities of human emotions.

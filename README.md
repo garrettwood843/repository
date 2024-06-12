@@ -1,1 +1,1 @@
-Disney Animation Studios experienced a renaissance with hits like "Frozen" (2013), which became the highest-grossing animated film of all time upon its release.
+The success of "The Bourne Identity" (2002) revitalized the spy thriller genre, leading to sequels and imitators throughout the decade.

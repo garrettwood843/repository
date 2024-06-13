@@ -1,1 +1,1 @@
-The success of "The Bourne Identity" (2002) revitalized the spy thriller genre, leading to sequels and imitators throughout the decade.
+"The Lord of the Rings" film trilogy, directed by Peter Jackson, concluded with "The Return of the King" in 2003, winning multiple Oscars.

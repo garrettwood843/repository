@@ -1,1 +1,1 @@
-Bollywood film "Lagaan" (2001), directed by Ashutosh Gowariker, received widespread acclaim and became India's official entry for the Academy Award for Best Foreign Language Film.
+The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.

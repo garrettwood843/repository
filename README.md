@@ -1,1 +1,1 @@
-The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.
+"Mad Max: Fury Road" (2015), directed by George Miller, earned critical acclaim and multiple Academy Awards, revitalizing the "Mad Max" series after a decades-long hiatus.

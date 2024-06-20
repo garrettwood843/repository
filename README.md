@@ -1,1 +1,1 @@
-"Star Wars: The Force Awakens" (2015) revived the iconic sci-fi saga for a new generation, breaking numerous box office records upon its release.
+"The Dark Knight" (2008), directed by Christopher Nolan, redefined the superhero genre and earned Heath Ledger a posthumous Oscar for his portrayal of the Joker.

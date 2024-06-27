@@ -1,1 +1,1 @@
-Despite its controversial final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
+Jamie Foxx received critical acclaim for his portrayal of musician Ray Charles in "Ray" (2004), winning the Academy Award for Best Actor.

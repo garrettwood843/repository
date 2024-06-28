@@ -1,1 +1,1 @@
-Jamie Foxx received critical acclaim for his portrayal of musician Ray Charles in "Ray" (2004), winning the Academy Award for Best Actor.
+The Battle of the Bastards, showcased in Season 6, Episode 9, is praised for its visceral intensity and cinematography.
